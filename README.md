@@ -7,7 +7,7 @@
 
 </div>
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/26ddf951-df77-4921-953b-cbfa8da8a90c" width="200" />
+  <img src="https://github.com/user-attachments/assets/26ddf951-df77-4921-953b-cbfa8da8a90c" width="300" />
     
   links
   &nbsp;&nbsp;|&nbsp;&nbsp;
@@ -20,6 +20,6 @@
 </div>
 
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&color=f5e7b8&label=idiots&color=f5e7b8&style=plastic&labelColor=C05C0E" />
+  <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&color=FF0000&label=idiots&color=FF0000&style=plastic&labelColor=FF0000" />
 </div>
 
