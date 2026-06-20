@@ -25,7 +25,7 @@
       
 <img width="50" src="https://files.catbox.moe/chklp2.png" /> <img width="50" src="https://files.catbox.moe/gp5l7v.png" /> <img width="50" src="https://files.catbox.moe/6cxeqb.png" />
 
-Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possible when I'm not comfortable with you yet. I dislike having to try to push myself into conversations or having no reply when i speak, so try to include me in convos and we cool. I am open to new friends, so if your my friend PRETTY PLEASE WITH A CHERRY ON A VANILLA ICECREAM introduce me to your other friends!!! 
+Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possible when I'm not comfortable with you yet. I dislike having to try to push myself into conversations or having no reply when i speak, so try to include me in convos and we cool. I am open to new friends, so if your my friend PRETTY PLEASE WITH A CHERRY ON A VANILLA ICECREAM introduce me to your other friends!!! Please do LMK if I'm bothering or annoying you or making you uncomfortable, I will always try my best to make you comfortable around me.
 
 still a wip lol
 
