@@ -28,10 +28,24 @@
 </div>
 <p align="justify">      
   
-Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possible when I'm not comfortable with you yet. I dislike having to try to push myself into conversations or having no reply when i speak, so try to include me in convos and we cool. I am open to new friends, so if your my friend PRETTY PLEASE WITH A CHERRY ON A VANILLA ICECREAM introduce me to your other friends!!! Please DO LMK if I'm bothering or annoying you or making you uncomfortable, I will always try my best!
+Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possible when I'm not comfortable with you yet. I dislike having to try to push myself into conversations or having no reply when i speak, so try to include me in convos and we cool. I am open to new friends, so if your my friend PRETTY PLEASE WITH A CHERRY ON A VANILLA ICECREAM introduce me to your other friends!!! Please DO LMK if I'm bothering or annoying you or making you uncomfortable, I will always try my best! I may be dry most of the time, but I actually care about our conversation and I definitely DONT find disinterest in you! I just have a hard time expressing emotions into text.
 </div>
 <p align="center">   
 <img width="50" src="https://files.catbox.moe/ldvlk7.png" /> <img width="50" src="https://files.catbox.moe/x12hqg.png" /> <img width="50" src="https://files.catbox.moe/6cxeqb.png" />
 </div>
+<p align="justify">      
 
 **DNI Criteria**, which means problematic -phobias, -phillia, antis, -isms, proshippers, darkshippers, people supporting the RIGHT WING in politics, and peoples who are just jerks. Aside from DNI criteria, DNI people who have over-the-top horny humor (i am okay with occasional sexual humor, im old enough), people who have used slurs for offensive reasons and not for reclaiming reasons, and people who support AI. 
+
+**IWEC/IWC**: People who states "DNI/IWEC/IWC" to Dandys World or any of my other fandoms. People from problematic fandoms (TCOAAL, HH/HB, Forsaken) for forsaken specifically: you can interact freely if you have basic common sense and respect and not cringe. You make degrading fat/autism/etc. jokes.
+
+<p align="center">   
+<img width="50" src="https://files.catbox.moe/50ke2y.png" /> <img width="50" src="https://files.catbox.moe/7hlyre.png" /> <img width="50" src="https://files.catbox.moe/0c6ykz.png" /> <img width="50" src="https://files.catbox.moe/gp5l7v.png" /> <img width="50" src="https://files.catbox.moe/rsbojn.png" /> <img width="50" src="https://files.catbox.moe/7hlyre.png" /> <img width="50" src="https://files.catbox.moe/mlhxwh.png" /> <img width="50" src="https://files.catbox.moe/0c6ykz.png" />
+</div>
+<p align="justify">  
+
+If you need to interact, please whisper. I have my public chat off and im mostly offtab. I love cuddling! C+H freely unless if my name says otherwise or if I'm already cuddling with friends. Please dont take heavy inspo from or copying my skins, you can slighty inspo if you ask proper permission (AND I ACCEPT.) 
+
+I'll not accept party or friend requests that are out of nowhere. If you want to give me a party or friend request then chat to me about it and convince me to accept it. 
+
+</div>
