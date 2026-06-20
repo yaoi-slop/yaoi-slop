@@ -37,7 +37,7 @@ Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possi
 
 **DNI Criteria**, which means problematic -phobias, -phillia, antis, -isms, proshippers, darkshippers, people supporting the RIGHT WING in politics, and peoples who are just jerks. Aside from DNI criteria, DNI people who have over-the-top horny humor (i am okay with occasional sexual humor, im old enough), people who have used slurs for offensive reasons and not for reclaiming reasons, and people who support AI. 
 
-**IWEC/IWC**: People who states "DNI/IWEC/IWC" to Dandys World or any of my other fandoms. People from problematic fandoms (TCOAAL, HH/HB, Forsaken) for forsaken specifically: you can interact freely if you have basic common sense and respect and not cringe. You make degrading fat/autism/etc. jokes.
+**IWEC/IWC**: You make degrading fat/autism/etc. jokes. People who states "DNI/IWEC/IWC" to Dandys World or any of my other fandoms. People from problematic fandoms (TCOAAL, HH/HB, Forsaken) for forsaken specifically: you can interact freely if you have basic common sense and respect and not cringe. 
 
 <p align="center">   
 <img width="50" src="https://files.catbox.moe/50ke2y.png" /> <img width="50" src="https://files.catbox.moe/7hlyre.png" /> <img width="50" src="https://files.catbox.moe/0c6ykz.png" /> <img width="50" src="https://files.catbox.moe/gp5l7v.png" /> <img width="50" src="https://files.catbox.moe/rsbojn.png" /> <img width="50" src="https://files.catbox.moe/7hlyre.png" /> <img width="50" src="https://files.catbox.moe/mlhxwh.png" /> <img width="50" src="https://files.catbox.moe/0c6ykz.png" />
