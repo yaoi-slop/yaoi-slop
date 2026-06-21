@@ -5,6 +5,8 @@
 <img width="1200" height="50" alt="SWAG2" src="https://files.catbox.moe/9099gw.gif" />
 
 <img src="https://github.com/user-attachments/assets/26ddf951-df77-4921-953b-cbfa8da8a90c" width="300" />
+
+
 <img alt=""  src="https://img.shields.io/github/followers/yaoi-slop?color=00A6FF&style=plastic&label=sk8rs"/> <img src="https://i.ibb.co/bWDHhdt/IMG-7071.gif" width="20" /> <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&color=FF0000&label=ppl!&color=FF0000&style=plastic&labelColor=FF0000" />
 
 </div>
